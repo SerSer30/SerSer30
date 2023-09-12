@@ -8,5 +8,5 @@
 - 💬 Ask me about nothing for now.
 - 📫 How to reach me: SerSer30
 - 😄 Pronouns: Ser.
-- ⚡ Fun fact: Did waste money in paladins.
+- ⚡ Fun fact: Wasted money in paladins.
 -->
